@@ -1,2 +1,2 @@
 # PROJECTS
-Will upload soon
+New projects coming soon...
